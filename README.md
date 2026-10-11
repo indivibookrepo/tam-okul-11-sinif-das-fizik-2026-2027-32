@@ -1,0 +1,1 @@
+# tam-okul-11-sinif-das-fizik-2026-2027-32
